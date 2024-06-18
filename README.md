@@ -1,1 +1,1 @@
-# s15-aula2
+Nesta semana, as festividades juninas continuam a todo vapor no Grande Recife, com shows de Silvério Pessoa, Irah Caldeira, Maciel Melo, Quinteto Violado e Josildo Sá. Mas como nem tudo é forrozar, também há diversas opções para quem quer se divertir, como peças teatrais, exposições artísticas e espetáculo de dança.
