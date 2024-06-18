@@ -1,1 +1,3 @@
 Nesta semana, as festividades juninas continuam a todo vapor no Grande Recife, com shows de Silvério Pessoa, Irah Caldeira, Maciel Melo, Quinteto Violado e Josildo Sá. Mas como nem tudo é forrozar, também há diversas opções para quem quer se divertir, como peças teatrais, exposições artísticas e espetáculo de dança.
+
+Mais da metade (54,3%) dos alunos brasileiros de 15 anos apresentou um baixo nível de criatividade ao tentar solucionar problemas sociais e científicos apresentados em uma prova internacional de conhecimentos. O dado foi divulgado nesta terça-feira (18) pela Organização para a Cooperação e Desenvolvimento Econômico (OCDE).
